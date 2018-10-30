@@ -4,3 +4,4 @@ by dhito
 Ko keren yak
 Mak pantang
 skut paraah
+Selesai sudah pengambilan baju ini
